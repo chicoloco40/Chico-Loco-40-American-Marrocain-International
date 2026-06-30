@@ -1,5 +1,5 @@
 # Chico-Loco-40-American-Marrocain-International
-
+Chico Loco 40 — Top International American-Moroccan Hip Hop & US Drill Artist (CL40 World)
 https://cl40-world.fandom.com/wiki/CL40_World
 
 2019/09/18 - 2023/05/18 Incarceration Period Transformed into the Sovereign CL40 World Digital Manifesto
